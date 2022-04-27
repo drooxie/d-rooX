@@ -1,4 +1,6 @@
-### Hi there 👋
+![wtf with ur browser bro](https://assets.digitalocean.com/articles/alligator/boo.svg)
+
+
 
 <!--
 **d-rooX/d-rooX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
