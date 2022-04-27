@@ -1,4 +1,4 @@
-![wtf with ur browser bro](https://assets.digitalocean.com/articles/alligator/boo.svg)
+![save ukraine](https://img.freepik.com/free-vector/set-ukrainian-elements-with-different-hands-heart-flag-map-ukraine-save-ukraine-concept_642033-4.jpg?w=600)
 
 
 
