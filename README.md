@@ -1,3 +1,5 @@
+[![wakatime](https://wakatime.com/badge/user/e34f462b-4449-40e4-b375-f945e8ceb023.svg)](https://wakatime.com/@e34f462b-4449-40e4-b375-f945e8ceb023)
+
 ![save ukraine](https://img.freepik.com/free-vector/set-ukrainian-elements-with-different-hands-heart-flag-map-ukraine-save-ukraine-concept_642033-4.jpg?w=820)
 
 
